@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi everyone 👋
 
 _I'm fk-ninenice_
 <!--
